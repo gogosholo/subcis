@@ -72,4 +72,4 @@ These Terms shall be governed by and construed in accordance with applicable law
 14. Contact
 For questions about these Terms, please contact us at:
 
-support@subcis.app
+ahmedoogle11@gmail.com
