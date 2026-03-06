@@ -52,4 +52,4 @@ We may update this Privacy Policy from time to time. We will notify you of any c
 10. Contact Us
 If you have questions about this Privacy Policy, please contact us at:
 
-ahmedoogle11@gmail.com
+subcis@oogle.tech
