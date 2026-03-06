@@ -79,4 +79,4 @@ These Terms shall be governed by and construed in accordance with applicable law
 
 15. Contact
 For questions about these Terms, please contact us at:
-ahmedoogle11@gmail.com
+subcis@oogle.tech
